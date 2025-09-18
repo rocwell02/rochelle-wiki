@@ -1,1 +1,2 @@
-
+## Volleyball
+Volleyball is a amazing sport to play in my opinion. It makes me feel so energized afterwards. It does a lot for me mentally as well because when I play, my brain feels more lighter than usual and I don't worry as much during practices. Although I have asthma, I know when to stop myself from using all of my energy and slightly improves my patience. Most of all, I have so much fun. I would recommend this sport to anyone. It may not be the easiest experience, but you have a family of teammates to help you throughout the season. [athletic family](https://github.com/user-attachments/assets/26c9d62f-8845-4987-be66-71242058ba15)
